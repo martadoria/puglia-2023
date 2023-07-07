@@ -13,7 +13,7 @@ Partenza da Pisa, notte a Vieste
 
 #### Park4Night 
 Sono disponibii decine di posti disponibili, anche gratuiti. 
-![](park4night-gargano.png)
+![](park4night-gargano.jpg)
 
 ## Giornata 2 (15 agosto)
 Giornata di mare nel gargano\
