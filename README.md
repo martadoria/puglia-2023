@@ -12,7 +12,7 @@ Partenza da Pisa, notte a Vieste
 [San Severo, 6 posti, 190€](https://www.airbnb.it/rooms/29140880?adults=6&location=vieste&check_in=2023-08-14&check_out=2023-08-15&source_impression_id=p3_1688727666_9VPWswxFKvzioyGz&previous_page_section_name=1001&federated_search_id=fc6aa01a-e787-4fa6-b015-552b66297d61)
 
 #### Park4Night 
-Sono disponibii decine di posti disponibili, anche gratuiti. 
+Sono disponibii decine di posti disponibili, anche gratuiti. \
 **Per info, vedere park4night-gargano.png**. 
 
 ## Giornata 2 (15 agosto)
