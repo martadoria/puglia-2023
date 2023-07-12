@@ -32,11 +32,11 @@ Si dorme a Barletta
 ## Giornata 7 (18 agosto)
 Barletta \
 Serata a Barletta paxxerella \
-Si dorme a Barletta \
+Si dorme a Barletta 
 
 ## Giornata 8 (19 Agosto)
 Gargano \
-Bivacco \
+Bivacco 
 ## Giornata 9 (20 Agosto)
 Rientro a Pisa
 ![](itinerario.png)
