@@ -21,12 +21,12 @@ Dormire a Otranto
 
 ## Giornata 5 (16 agosto)
 Mare a Torre dell'Orso \
-Serata a Lecce
+Serata a Lecce \
 Dormire a Otranto 
 
 ## Giornata 6 (17 agosto)
 Checkout si porta Teresa a Brindisi \
-Si arriva a Polignano a Mare 
+Si arriva a Polignano a Mare \
 Si dorme a Barletta
 
 ## Giornata 7 (18 agosto)
