@@ -19,6 +19,10 @@ Sono disponibii decine di posti disponibili, anche gratuiti. \
 Giornata di mare nel gargano\
 Raggiungere i nostri fratelli barlettani per serata & notte 
 
+## Pernottamenti 
+Probabilemnte a casa dei nostri amici Barlettisti\ 
+
+
 ## Giornata 3 (16 agosto)
 Giornata di mare a Polignano \
 Notte a Lecce 
