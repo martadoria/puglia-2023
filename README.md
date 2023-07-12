@@ -11,8 +11,8 @@ Torre Lapillo(?), Punta Prusciutto, Porto Selvaggio
 
 ## Giornata 3 (14 agosto)
 Giornata di mare a Porto Selvaggio  \
-Notte a Gallipoli
-Nina Kraviz(?!?!?!?!) Parco Gondar
+Notte a Gallipoli \
+Nina Kraviz(?!?!?!?!) Parco Gondar \
 Bivacco
 
 ## Giornata 4 (15 agosto)
