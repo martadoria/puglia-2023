@@ -34,9 +34,9 @@ Barletta \
 Serata a Barletta paxxerella \
 Si dorme a Barletta \
 
-##Giornata 8 (19 Agosto)
+## Giornata 8 (19 Agosto)
 Gargano \
 Bivacco \
-##Giornata 9 (20 Agosto)
+## Giornata 9 (20 Agosto)
 Rientro a Pisa
 ![](itinerario.png)
