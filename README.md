@@ -5,8 +5,8 @@
 Partenza da Pisa, notte a Castellaneta 
 
 ## Giornata 2 (13 agosto)
-Giornata di mare Marina di Pulsano 
-Notte a Porto Cesareo (Park4Night)
+Giornata di mare Marina di Pulsano \
+Notte a Porto Cesareo (Park4Night) \
 Torre Lapillo(?), Punta Prusciutto, Porto Selvaggio
 
 ## Giornata 3 (14 agosto)
