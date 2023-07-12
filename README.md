@@ -1,7 +1,7 @@
 # Viaggio in Puglia
-14-20 agosto (6 notti) 
+12-18 agosto (6 notti) 
 
-## Giornata 1 (14 agosto)
+## Giornata 1 (12 agosto)
 Partenza da Pisa, notte a Vieste 
 
 ### Pernottamenti
@@ -15,29 +15,29 @@ Partenza da Pisa, notte a Vieste
 Sono disponibii decine di posti disponibili, anche gratuiti. \
 **Per info, vedere park4night-gargano.png**. 
 
-## Giornata 2 (15 agosto)
+## Giornata 2 (13 agosto)
 Giornata di mare nel gargano\
 Raggiungere i nostri fratelli barlettani per serata & notte 
 
-## Giornata 3 (16 agosto)
+## Giornata 3 (14 agosto)
 Giornata di mare a Polignano \
 Notte a Lecce 
 
-## Giornata 4 (17 agosto)
+## Giornata 4 (15 agosto)
 Giornata di mare a Torre dell'Orso \
 Rientro a Lecce mid pomeriggio\
 Serata a Gallipoli o similari \
 Notte a Lecce 
 
-## Giornata 5 (18 agosto)
+## Giornata 5 (16 agosto)
 Mare a Marina di Pulsano o Punta Prosciutto \
 Notte a Castellaneta 
 
-## Giornata 6 (19 agosto)
+## Giornata 6 (17 agosto)
 Mattinata di mare a Castellaneta nel chilling \
 Notte a Campobasso 
 
-## Giornata 7 (20 agosto)
+## Giornata 7 (18 agosto)
 Ritorno a Pisa 
 
 ![](itinerario.png)
